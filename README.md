@@ -1,0 +1,1 @@
+# amagar0201.github.io
